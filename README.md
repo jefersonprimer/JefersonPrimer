@@ -1,4 +1,3 @@
-
-### Hey, Jeferson Primer! 👋
+### Hey, I'm Jeferson Primer! 👋
 
 <!--https://jefersonprimer.com-->
